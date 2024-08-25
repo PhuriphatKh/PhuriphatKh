@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PhuriphatKh
+- 👀 I’m interested in WebAppDev
+- 🌱 I’m currently learning Computer Enginering
+- 💞️ I’m looking to collaborate on some company
+- 📫 How to reach me {SECRET} for now
+- 😄 Pronouns: He
+- ⚡ Fun fact: I'm to good at learning, but I'm so lazy 😄.
